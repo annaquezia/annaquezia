@@ -1,4 +1,4 @@
-# Wellcome to my little World :sparkles:
+# Welcome to my little World :sparkles:
 Oie, eu sou a Anna!
 Sou estudante do segundo período de Engenharia de Software na PUCPR! Tenho 22 anos, um projeto de mineira e apaixonada em fotografia analógica.
   
